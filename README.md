@@ -38,4 +38,4 @@ https://www.ultra-fingering.com/
 
 # Demo Video:
 
-[![Demo Doccou alpha](https://j.gifs.com/lRDJ2r.gif)](https://www.youtube.com/watch?v=SUGEAcDLQXs&ab_channel=HaoxiangSun)
+[![Demo Doccou alpha](https://j.gifs.com/lRDJ2r.gif)](https://www.youtube.com/watch?v=S-GghyaJU7w)
